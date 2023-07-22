@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Dhanunjaya Rao a.k.a Krixen_09
+- 👋 Hi, I’m Dhanunjaya Rao A.K.A. @Krixen09
 - 👀 I’m interested in exploring new technologies
 - 🌱 I’m currently learning
 - 💞️ I’m looking to collaborate on new metaverse
