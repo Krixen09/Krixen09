@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Dhanunjaya Rao A.K.A. @Krixen09
 - 👀 I’m interested in exploring new technologies
-- 🌱 I’m currently learning Java Enterprises
+- 🌱 I’m currently learning *
 - 💞️ I’m looking to collaborate on new metaverse
 - 📫 you can reach me here
 
